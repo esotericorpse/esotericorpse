@@ -1,2 +1,2 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313yccpfjafogiz2etb2ruvncf6e&cover_image=true&theme=novatorem&show_offline=false&background_color=1c1c1c&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-![Untitled125](https://github.com/user-attachments/assets/d6fdda95-bb5c-4599-80c6-cb7aea652ead)
+![Untitled125_1](https://github.com/user-attachments/assets/10edd873-f060-4830-b88f-a95a047c7dca)
