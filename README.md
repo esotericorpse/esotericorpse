@@ -1,2 +1,2 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313yccpfjafogiz2etb2ruvncf6e&cover_image=true&theme=novatorem&show_offline=false&background_color=1c1c1c&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-![Roblox_5_16_2025_10_35_19_PM](https://github.com/user-attachments/assets/cea05287-29f5-4f2c-a843-346a8195f7a5)
+![e4699d2e0b66e1743e88ee5eed24d9e8](https://github.com/user-attachments/assets/58ba9eb0-eb4b-4958-bdd9-5ab6791a464a)
